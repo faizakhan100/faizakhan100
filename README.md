@@ -1,7 +1,4 @@
-TABLE OF CONTENT:
-  
-https://faizakhan100.github.io/tailwind/
-https://faizakhan100.github.io/salt-n-pepper/
-https://faizakhan100.github.io/bakery/
-
+HI, 
+looking towerds the best project , you are n right track.
+have a right destination
  
